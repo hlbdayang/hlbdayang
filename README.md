@@ -1,5 +1,5 @@
-黑料不打烊最新地址（02/17更）
-<br> 免翻墙入口：https://cgbdy6.com
+黑料不打烊最新地址（02/24更）
+<br> 免翻墙入口：https://cgbdy7.com
 <br> 永久入口需翻墙：https://166.run
 <br> 永久入口需翻墙：https://hlbdy.me
 <br> App下载地址：https://e916.gbxziisx.cc
